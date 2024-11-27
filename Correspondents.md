@@ -1,4 +1,4 @@
-﻿## THE SOURCE:
+### THE SOURCE:
 https://github.com/LordLorentz/wizarding
 
 Eon:
@@ -31,7 +31,5 @@ Vreta, ---
 
 Reedy and petulant voice: Appeared in script but not yet named.
 
-Word of the day: Allagmatic.
-I expect one in return, from each of you.
 
 
