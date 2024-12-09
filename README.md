@@ -27,11 +27,11 @@ _____
 
 “We don’t have any plans because that situation would be hopeless. I know. You don’t have to go on about it,” a second speaker added, reproachfully.
 
-“Apparently I do, because you just won’t hold on to the fact! Now, I want to make sure you-”
+The first speaker countered, “Apparently I *do*, because you just won’t hold on to the fact! Now, I want to make sure you-”
 
 “It’s unlikely I’ll forget in the last twenty meters to his cell, alright? Just let me handle things. I’ll ask Limerence to lend me a hand.”
 
-The barely successful attempt to bite back a pointless, bickering response could be felt trough the walls.
+The barely successful attempt to bite back a pointless, bickering response could be felt through the walls.
 The first voice was reedy and petulant, unpleasant but not a personal insult. Killing them once would do. The second voice, oh how he longed to forget that second voice, full and obnoxious, always lurking in the back of the mind like a self-satisfied toad on a stone. _Memento Mori_. The blaggard. He had _plans_ in store for-
 
 ____
@@ -42,13 +42,13 @@ Marasmus’ internal monologue was cut short when the ancient, black-oaken, stee
 
 A cool, androgynous voice rang from a point near the middle of the room, “A few. You could finish him. That would be interesting.”
 
-“For you, yeah. Anything feasible?”, Memento asked.
+“For you, yeah. Anything feasible?”, Memento asked, his patience restored.
 
-“Sure. Take the space, and make it our own. It'd need us all to meet here with some regularity, but I think once a week should suffice to sequester his blit admittance to the memetic plane - which you can forget about.”
+“Sure. Take the space, and make it our own. It'd need us all to meet here with some regularity", the voice spoke, echoing more and more until it seemed the walls themselves were droning out the words. "But I think once a week should suffice to sequester his blit admittance to the memetic plane, where you can forget about it for good.”
 
-“Stop it, you. You’re making my head spin. I can’t follow you in all this.”
+“Stop it, you. You’re making my head spin. I can’t follow you in all this”, Memento sputtered as the echoes died away.
 
-“Oh? You certainly did like it when I left you spinning, last time. You sure about that?”
+Once again clear and mildly teasing, the voice said, “Oh? You certainly did like it when I left you spinning, last time. You sure about that?” 
 
 A faint flicker of unease passed over Memento’s features, like he’d forgotten something pleasant, before he shook it off.
 
@@ -59,11 +59,11 @@ An orb popped into existence above Memento’s hand, at first reflecting the roo
 “Well then. That ought to do,” Memento said, flippantly tossing the orb to the center of the cell. When it hit about a meter from the floor, it rolled on the table depicted inside itself, and, to ensure the possibility of this happening, swapped the inside with the outside.
 
 “About a second too late, but we can’t all be perfect.”
-Memento Mori looked up, pleasantly surprised, as the painting of Athena on the ceiling shifted, like the stone was coming alive.
+Memento Mori looked up, pleasantly surprised, as the painting of Athena on the ceiling shifted, like it was coming alive.
 
-“Not a bad form-”, Limerence spoke, as cracks filled the ceiling, spreading around the painting as it angled itself on the stone.
+“Not a bad form-”, Limerence spoke, cracks filling the ceiling, spreading around the painting as it angled itself on the stone.
 
-The ceiling broke, and most of the stones floated upward, into a wide shaft with walls of sandstone, decorated with arches and grape-vine patterns Esher would have given an arm and a leg to see. The end of it disappeared in a white mist, where several tonnes of rock would soon confound the night-time cleaning crew of --Academical building? Somebody finish this joke, please.
+The ceiling broke, and most of the stones floated upward, into a wide shaft with walls of sandstone, decorated with arches and grape-vine patterns Escher would have given an arm and a leg to see. The end of it disappeared in a white mist, where several tonnes of rock would soon confound the night-time cleaning crew of --Academical building? Somebody finish this joke, please.
 
 Limerence dropped onto the granite table with a heavy crack, clothing draping around them as it turned from painted stone to fabric.
 
