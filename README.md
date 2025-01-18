@@ -46,7 +46,7 @@ A cool, androgynous voice rang from a point near the middle of the room, “A fe
 
 “Sure. Take the space, and make it our own. It'd need us all to meet here with some regularity", the voice spoke, echoing more and more until it seemed the walls themselves were droning out the words. "But I think once a week should suffice to sequester his blit admittance to the memetic plane, where you can forget about it for good.”
 
-“Stop it, you. You’re making my head spin. I can’t follow you in all this”, Memento sputtered as the echoes died away.
+“Stop it, you. You’re making my head spin. I can’t follow you with all this”, Memento sputtered as the echoes died away.
 
 Once again clear and mildly teasing, the voice said, “Oh? You certainly did like it when I left you spinning, last time. You sure about that?” 
 
@@ -54,7 +54,7 @@ A faint flicker of unease passed over Memento’s features, like he’d forgotte
 
 “All-right, let’s just clean the place up, then”, he said.
 
-An orb popped into existence above Memento’s hand, at first reflecting the room like a soap bubble, then quickly changing the image on its surface to carved alabaster pillars, beautiful frescoes on the walls, polished marble floor, littered with sand, a massive granite slab serving as a table, surrounded by seven simple chairs. Lastly, the low, gloomy ceiling reflected in the orb turned into a high, airy arch, painted with the image of the Greek goddess, Athena.
+An orb popped into existence above Memento’s hand, at first reflecting the room like a soap bubble, then quickly changing the image on its surface to carved alabaster pillars, beautiful frescoes on the walls, polished marble floor, littered with sand, a massive granite slab serving as a table, surrounded by seven stone chairs. Lastly, the low, gloomy ceiling reflected in the orb turned into a high, airy arch, painted with the image of the Greek goddess, Athena.
 
 “Well then. That ought to do,” Memento said, flippantly tossing the orb to the center of the cell. When it hit about a meter from the floor, it rolled on the table depicted inside itself, and, to ensure the possibility of this happening, swapped the inside with the outside.
 
@@ -71,7 +71,12 @@ Limerence dropped onto the granite table with a heavy crack, clothing draping ar
 
 “That’s high praise coming from you, Lim,” Memento countered, grinning insipidly.
 
-____
+Sweeping around, Limerence walked to the chair facing Marasmus, on the far side of the table. As they bend down, the ridge of their spine becomes visible through the white cloth; a line, at first, then splitting into two, writhing like snakes, then forming strange depressions, boiling like a potful of frogs.
+Memento stared blankly to the side, successfully forgetting what he'd just seen. No such luck for Marasmus.
+
+The chair, in the meantime, had become a thing of melted brass and nightmarish owl motifs, a throne suitable only for the foolish and the mad.
+
+"Fortunately, I'm both", Limerence said, their head twisted around a hundred and eighty degrees, looking at Marasmus like they could hear his thoughts.
 
 Limerence approached Marasmus, sashaying slightly, wearing their golden laurel like the Greek goddess, their gaze enough to soothe even the most deranged lunatic, now clashing with his undisguised reproach.
 The rusted cuffs that held him changed, instantly. Their texture turned fluffy, and a pink so vitriolic he could feel it in his fingers. The wall behind him was covered in rubberized padding, the comfort a sore insult to his predicament.

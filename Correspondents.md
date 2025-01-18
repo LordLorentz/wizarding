@@ -4,7 +4,7 @@ https://github.com/LordLorentz/wizarding
 Eon:
 lunardragon321@gmail.com
 Limerence, Snatcher of Sense
-A different shape in every scene. Spirit of the Wizarding Pit. Makes the environment come alive. Very skilled in subverting others' expression.
+A different shape in every scene. Makes the environment come alive.
 Likes putting people off-balance.
 
 Azar:
@@ -20,7 +20,7 @@ Has a habit of cutting people off when annoyed.
 Lorentz:
 marissa.mosk@proton.me
 Marasmus, Neglected Necromancer
-Used to have a hook in every mind he faced, until Memento forgot it. Will be able to do that again when revived elsewhere.
+Can revive the person you used to be, even if you're not dead.
 Really hates everyone else, especially Memento.
 
 Arianne:
