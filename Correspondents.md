@@ -32,11 +32,12 @@ Alma Master, Neck Romancer.
 (Not introduced, as of yet)
 
 Modesta:
-Vreta, ---
+Vreta, Sorceress in Shadow.
 
 Mats:
 Erasmus Montanus, Dispudiant Sophist?
 Same as reedy and petulant voice?
-
+What he believes becomes true, to a certain extent, but his beliefs are forced to be mostly theoretical. One major exception is what he believes about other people's motivations, skills, and opinions.
+Loves pointless debates. Is useless in most practical situations, because he believes he shouldn't have to deal with them.
 
 
